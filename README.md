@@ -10,5 +10,4 @@
   
 <img src="https://i.postimg.cc/ZqzLGsx4/heh.png" width="300" />
 
-#####  [credit](https://x.com/Valityanation) ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎  [prns](https://pronouns.cc/@faelight) ‎    ‎ ‎ ‎   ‎  ‎ ‎  ‎  ‎  ‎ [ata](https://phainaxa.atabook.org)
-
+#####  [credit](https://x.com/Valityanation) ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎  [prns](https://pronouns.cc/@faelight) ‎    ‎ ‎ ‎   ‎  ‎ ‎  ‎  ‎  ‎ [ata](https://phainaxa.atabook.org)‎ ‎ ‎ ‎ ‎ ‎ ‎ 
