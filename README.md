@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=valitya&label=ʚ♡ɞ&style=plastic&color=252184" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=valitya&label=˚ʚ♡ɞ˚&style=plastic&color=252184" </p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=jhmyaro1c0u18xmutf9nljjx5&redirect=true">
@@ -10,5 +10,5 @@
   
 <img src="https://i.postimg.cc/ZqzLGsx4/heh.png" width="300" />
 
-#####  [credit](https://rentry.co/murakvmo) ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎  [prns](https://pronouns.cc/@faelight) ‎    ‎ ‎ ‎   ‎  ‎ ‎  ‎  ‎  ‎ [ata](https://phainaxa.atabook.org)
+#####  [credit](https://x.com/Valityanation) ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎   ‎ ‎  [prns](https://pronouns.cc/@faelight) ‎    ‎ ‎ ‎   ‎  ‎ ‎  ‎  ‎  ‎ [ata](https://phainaxa.atabook.org)
 
