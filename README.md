@@ -1,4 +1,4 @@
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=valitya&label=GUARDIANANGEL:&style=plastic&color=252184" </p>
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=valitya&label=GUARDIANANGEL&style=plastic&color=252184" </p>
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=jhmyaro1c0u18xmutf9nljjx5&redirect=true">
